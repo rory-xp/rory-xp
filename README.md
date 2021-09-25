@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @rory-xp
+- 👀 I’m interested in being a game developer at ATLUS!
+- 🌱 I’m currently learning how to use the Unity and Unreal engines
+- 💞️ I’m looking to collaborate on a game
+- 📫 How to reach me- twitter dms!
